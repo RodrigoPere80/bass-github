@@ -1,4 +1,4 @@
-## **README.md Descontraído para o Contrabass Club**
+## Contrabass Club**
 
 ### ** Contrabass Club: Seu guia para o mundo dos baixos! **
 
